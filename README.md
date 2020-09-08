@@ -5,6 +5,7 @@
 
 ## [Follow us on Instagram for Machine Learning Guidelines & Path](https://www.instagram.com/machine_learning_hub.ai/)
 ## [Watch Tutorial Videos of these all projects](https://www.youtube.com/c/MachineLearningHub)
+## [Buy Python & ML projects for students at lower rate](https://www.instamojo.com/kushalbhavsar1820)
 
 ## Usage:-
 
